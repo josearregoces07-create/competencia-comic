@@ -1,2 +1,2 @@
 # competencia-comic
-
+jose arregoces
